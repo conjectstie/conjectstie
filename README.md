@@ -1,4 +1,4 @@
-zamn its me
+its me oh cool!
 
 <!---
 conjectstie/conjectstie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
